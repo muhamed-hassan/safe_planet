@@ -5,3 +5,5 @@ planned profiles:
 1. local-dev (min specs: 16 G of RAM, i7 CPU, 250 G SSD and Clean laptop windows based)
 2. testing (vm model version and containerization model version)
 3. production (vm model version and containerization model version)
+
+# This poc is made to bring terrorists down to the hell which is made via Allah (GOD the creator of this universe) to punish them after their death, beside punishing them during their lifetime by us as civilized societies using the security authorities upon reporting to them. Note that the intent of this repository is to reuse the information technology theories which are taught via universities worldwide to reduce the cost/wastage as much as we can not on the cost of the human lifes as those terrorists in the industry are making as I mentioned before.
