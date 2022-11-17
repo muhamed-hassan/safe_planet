@@ -1,10 +1,12 @@
 # safe_planet
 Add useful descriptive info about effectively constructing development process environment [java-backend enterprise level application] so our kids will be safe in the future when they try to reuse the information technology theories which are taught at universities worldwide
 
-planned profiles:
-1. local-dev (min specs: 16 G of RAM, i7 CPU, 250 G SSD and Clean laptop windows based)
-2. testing (vm model version and containerization model version)
-3. production (vm model version and containerization model version)
+***
+
+# Planned profiles:
+1. `local-dev` (min specs: 16 G of RAM, i7 CPU, 250 G SSD and Clean laptop windows based)
+2. `testing` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) and [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
+3. `production` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) and [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
 
 ***
 
