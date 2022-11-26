@@ -8,7 +8,7 @@ Add useful descriptive info about effectively constructing development process e
 ***
 
 # Planned environments (profiles) for effective delivery:
-1. `local-dev` [Min specs: 16 G of RAM | i7 CPU | 250 G SSD | Clean laptop windows based] to start development as a developer
+1. `local-dev` [Min Laptop Specs: (16 G of RAM, i7 CPU, 250 G SSD), Clean Windows OS based] to start development as a developer
 2. `testing` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) and [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
 3. `production` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) and [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
 
