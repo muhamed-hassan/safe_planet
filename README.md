@@ -9,8 +9,8 @@ Add useful descriptive info about effectively constructing development process e
 
 # Planned environments (profiles) for effective delivery:
 1. `local`
-2. `testing` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) and [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
-3. `production` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) and [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
+2. `testing` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) OR [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
+3. `production` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) OR [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
 
 ***
 
