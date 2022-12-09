@@ -9,7 +9,7 @@ Add useful descriptive info about effectively constructing development process e
 
 # Planned environments ([`profiles`](https://github.com/muhamed-hassan/profiling)) for effective delivery:
 1. [`local`](https://github.com/muhamed-hassan/profiling/wiki/Usage#local-profile)
-2. `testing` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) OR [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
+2. [`testing`](https://github.com/muhamed-hassan/profiling/wiki/Usage#testing-profile) ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) OR [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
 3. `production` ([Virtualization model](https://en.wikipedia.org/wiki/Virtualization) OR [Containerization model](https://en.wikipedia.org/wiki/Containerization_(computing)))
 
 ***
