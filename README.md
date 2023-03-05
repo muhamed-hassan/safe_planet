@@ -1,4 +1,4 @@
-**FYI:** `foreigners` means people stranger to your home country. Just it, no more no less. It's a fucken human at the end not an alien.
+**FYI:** `foreigners` means people stranger to your home [country](https://en.wikipedia.org/wiki/Country). Just it, no more no less. It's a fucken [human](https://en.wikipedia.org/wiki/Human) at the end not an alien 👽 👾 🤖.
 
 ***
 
