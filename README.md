@@ -8,6 +8,8 @@
 
 ![91470-earth-space-digital-universe-planets-hd-4k](https://user-images.githubusercontent.com/17825804/219568027-628ef8fe-a3a8-4535-8e76-dcb006cc1220.jpg)
 
+![Flag-map_of_the_world_(2018)](https://user-images.githubusercontent.com/17825804/232563645-39ffe139-bdec-415d-a9b1-56d5cf0740ab.png)
+
 ***
 
 #### Please visit the wiki for more info https://github.com/muhamed-hassan/safe_planet/wiki 👌
