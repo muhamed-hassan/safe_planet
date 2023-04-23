@@ -10,12 +10,6 @@
 
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 5 ) He arranges [each] matter from the heaven to the earth; then it will ascend to Him in a Day, the extent of which is a thousand years of those which you count.` [Sura As-Sajda - Aya 5]
 
-![220940924-49c0c649-3d1f-4673-8def-306ebe0ce7e0](https://user-images.githubusercontent.com/17825804/233821491-c1cbb74b-441b-4ca9-bb93-99386384275c.png)
-
-![91470-earth-space-digital-universe-planets-hd-4k](https://user-images.githubusercontent.com/17825804/219568027-628ef8fe-a3a8-4535-8e76-dcb006cc1220.jpg)
-
-![Flag-map_of_the_world_(2018)](https://user-images.githubusercontent.com/17825804/232563645-39ffe139-bdec-415d-a9b1-56d5cf0740ab.png)
-
 ***
 
 Add useful descriptive info about effectively constructing development process environment [java-backend enterprise level application] so our kids will be safe in the future when they try to reuse the information technology theories which are taught at universities worldwide
