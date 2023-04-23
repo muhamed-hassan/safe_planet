@@ -28,8 +28,27 @@ This [POC](https://en.wikipedia.org/wiki/Proof_of_concept) is made to bring lice
 Note that the **intent of this repository** is to reuse the information technology theories wisely which are taught via universities worldwide to reduce the cost as much as we can not on the cost of the human lifes as those licentious thieves terrorists in the industry worldwide are making as I mentioned before.
 
 ***
+***
 
 ### Motivations: 
 
 * [Item 0](https://youtu.be/AM5jgcj1TJc)
 * [Item 1](https://youtu.be/0vOpWqBGD8w)
+
+***
+
+![intro](https://user-images.githubusercontent.com/17825804/233841176-23de5324-af26-4988-8255-4eee77316f21.jpg)
+
+![navy seals reuters](https://user-images.githubusercontent.com/17825804/233841158-b9a64384-f434-45a5-bcb6-175203f05201.jpg)
+
+![_methode_times_prod_web_bin_7f00df08-e638-11eb-afdb-c7b01afbcfc5](https://user-images.githubusercontent.com/17825804/233841163-94a23493-0387-4c24-8a95-a2df91f1cf6e.jpg)
+
+![5aab02ebadfd19fd79a51781db46239c25844e1a](https://user-images.githubusercontent.com/17825804/233841175-d46e9251-57a7-408e-bda2-c26cd3cc0ff1.jpg)
+
+![190806-header-spezialkraefte](https://user-images.githubusercontent.com/17825804/233841180-05fafc4d-243a-4b20-a1fa-a92e48db2c01.jpg)
+
+![50364556_605](https://user-images.githubusercontent.com/17825804/233841181-ca95596b-8304-45fe-9efd-2ebb0fa6d887.jpg)
+
+![A_joint_special_forces_team_moves_together_out_of_an_Air_Force_CV-22_Osprey_aircraft,_Feb _26,_2018](https://user-images.githubusercontent.com/17825804/233841184-7ab019c8-3a61-4746-9f5c-a6ae29a4a76d.jpg)
+
+![a1787806-7e1b-4373-bda4-2500b8cdf422](https://user-images.githubusercontent.com/17825804/233841191-2ea107ec-db31-4ae1-a562-973765f59788.jpg)
