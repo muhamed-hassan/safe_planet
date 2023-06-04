@@ -35,6 +35,12 @@ Note that the **intent of this repository** is to reuse the information technolo
 * [Item 0](https://youtu.be/AM5jgcj1TJc)
 * [Item 1](https://youtu.be/0vOpWqBGD8w)
 
+![giphy](https://github.com/muhamed-hassan/safe_planet/assets/17825804/ab1101d3-eae0-4848-a9c4-3303001631fc)
+
+![giphy (1)](https://github.com/muhamed-hassan/safe_planet/assets/17825804/6c74a720-2652-4a5c-8b41-051a9d0dbf0f)
+
+![giphy (2)](https://github.com/muhamed-hassan/safe_planet/assets/17825804/4bc3566a-ec26-4cbc-a3a8-49f9bb5a5905)
+
 ***
 
 ![intro](https://user-images.githubusercontent.com/17825804/233841176-23de5324-af26-4988-8255-4eee77316f21.jpg)
