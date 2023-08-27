@@ -6,6 +6,10 @@
 
 ***
 
+**`Difficulty Level:`** Lessons learned from interacting alot with countryside savage dogs.
+
+***
+
 ![1677471707668](https://user-images.githubusercontent.com/17825804/222885800-623d4726-a2a9-4de4-92f7-6e3a4e2e30c2.png)
 
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 5 ) He arranges [each] matter from the heaven to the earth; then it will ascend to Him in a Day, the extent of which is a thousand years of those which you count.` [Sura As-Sajda - Aya 5]
