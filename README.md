@@ -62,3 +62,8 @@ Note that the **intent of this repository** is to reuse the information technolo
 ![A_joint_special_forces_team_moves_together_out_of_an_Air_Force_CV-22_Osprey_aircraft,_Feb _26,_2018](https://user-images.githubusercontent.com/17825804/233841184-7ab019c8-3a61-4746-9f5c-a6ae29a4a76d.jpg)
 
 ![a1787806-7e1b-4373-bda4-2500b8cdf422](https://user-images.githubusercontent.com/17825804/233841191-2ea107ec-db31-4ae1-a562-973765f59788.jpg)
+
+***
+
+![gettyimages-sb10069274b-004-2048x2048](https://github.com/muhamed-hassan/safe_planet/assets/17825804/8d304f26-efd8-4787-9570-714ef570a205)
+
