@@ -65,10 +65,6 @@ Note that the **intent of this repository** is to reuse the information technolo
 
 ***
 
-![gettyimages-sb10069274b-004-2048x2048](https://github.com/muhamed-hassan/safe_planet/assets/17825804/8d304f26-efd8-4787-9570-714ef570a205)
-
-***
-
 ![f0782141a4935e2397b8f993a650c617](https://github.com/muhamed-hassan/safe_planet/assets/17825804/ff96bdac-ad82-4912-a923-cc1d6eb137e4)
 
 
