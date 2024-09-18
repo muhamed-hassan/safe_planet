@@ -17,6 +17,8 @@
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 5 ) He arranges [each] matter from the heaven to the earth; then it will ascend to Him in a Day, the extent of which is a thousand years of those which you count.` [Sura As-Sajda - Aya 5]
 
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 1 ) Say, "He is Allah, [who is] One, ( 2 ) Allah, the Eternal Refuge. ( 3 ) He neither begets nor is born, ( 4 ) Nor is there to Him any equivalent."` [Sura Al-Ikhlaas - Aya 1 to Aya 4]
+
+> Source as a Reference [We don't memorize it mate 😇] from Quran: `( 29 ) Muhammad is the Messenger of Allah; and those with him are forceful against the disbelievers, merciful among themselves. You see them bowing and prostrating [in prayer], seeking bounty from Allah and [His] pleasure. Their mark is on their faces from the trace of prostration. That is their description in the Torah. And their description in the Gospel is as a plant which produces its offshoots and strengthens them so they grow firm and stand upon their stalks, delighting the sowers - so that Allah may enrage by them the disbelievers. Allah has promised those who believe and do righteous deeds among them forgiveness and a great reward.` [Sura Al-Fath - Aya 29]
  
 ***
 
