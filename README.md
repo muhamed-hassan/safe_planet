@@ -21,6 +21,8 @@
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 1 ) Say, "He is Allah, [who is] One, ( 2 ) Allah, the Eternal Refuge. ( 3 ) He neither begets nor is born, ( 4 ) Nor is there to Him any equivalent."` [Sura Al-Ikhlaas - Aya 1 to Aya 4]
 
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 29 ) Muhammad is the Messenger of Allah; and those with him are forceful against the disbelievers, merciful among themselves. You see them bowing and prostrating [in prayer], seeking bounty from Allah and [His] pleasure. Their mark is on their faces from the trace of prostration. That is their description in the Torah. And their description in the Gospel is as a plant which produces its offshoots and strengthens them so they grow firm and stand upon their stalks, delighting the sowers - so that Allah may enrage by them the disbelievers. Allah has promised those who believe and do righteous deeds among them forgiveness and a great reward.` [Sura Al-Fath - Aya 29]
+
+> Source as a Reference [We don't memorize it mate 😇] from Quran: `( 40 ) If you do not aid the Prophet - Allah has already aided him when those who disbelieved had driven him out [of Makkah] as one of two, when they were in the cave and he said to his companion, "Do not grieve; indeed Allah is with us." And Allah sent down his tranquillity upon him and supported him with angels you did not see and made the word of those who disbelieved the lowest, while the word of Allah - that is the highest. And Allah is Exalted in Might and Wise.` [Sura At-Tawba - Aya 40]
  
 ***
 
