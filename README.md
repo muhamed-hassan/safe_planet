@@ -16,6 +16,8 @@
 
 **Allah** is the `absolute name` that can not be translated in any language and means the name of GOD the only creator of this universe. We can not fully describe him as creatures because he is the creator and the human language can not describe him well. His miracles as quran, bible and others for his prophets and his creatures were not given to certain people but for all of them. Just remeber that well and recall that mother fucker countryside savage dogs discriminate people because they are disbelievers, they worship animals, idols, and others - besides they believe in the multiplicity of gods. Just read a bit in racism.
 
+The word of **`GOD`** can be translated in any human language as in arabic => الرب أو ربنا .
+
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 5 ) He arranges [each] matter from the heaven to the earth; then it will ascend to Him in a Day, the extent of which is a thousand years of those which you count.` [Sura As-Sajda - Aya 5]
 
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 1 ) Say, "He is Allah, [who is] One, ( 2 ) Allah, the Eternal Refuge. ( 3 ) He neither begets nor is born, ( 4 ) Nor is there to Him any equivalent."` [Sura Al-Ikhlaas - Aya 1 to Aya 4]
