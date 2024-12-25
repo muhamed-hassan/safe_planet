@@ -42,6 +42,8 @@ The word of **`GOD`** can be translated in any human language as in arabic => ا
 
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 8 ) How [can there be a treaty] while, if they gain dominance over you, they do not observe concerning you any pact of kinship or covenant of protection? They satisfy you with their mouths, but their hearts refuse [compliance], and most of them are defiantly disobedient.` [Sura At-Tawba - Aya 8]
 
+> Source as a Reference [We don't memorize it mate 😇] from Quran: `( 78 ) Wherever you may be, death will overtake you, even if you should be within towers of lofty construction. But if good comes to them, they say, "This is from Allah "; and if evil befalls them, they say, "This is from you." Say, "All [things] are from Allah." So what is [the matter] with those people that they can hardly understand any statement?` [Sura An-Nisaa - Aya 78]
+
 ***
 
 Add useful descriptive info about effectively constructing development process environment [java-backend enterprise level application] so our kids will be safe in the future when they try to reuse the information technology theories which are taught at universities worldwide
