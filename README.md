@@ -16,7 +16,7 @@
 
 ![1677471707668](https://user-images.githubusercontent.com/17825804/222885800-623d4726-a2a9-4de4-92f7-6e3a4e2e30c2.png)
 
-**Allah** is an `absolute name` that can not be translated in any human language and means the name of GOD the only creator of this universe. We can not fully describe him as creatures because he is the creator and the human language can not describe him well. His miracles as quran, bible and others for his prophets and his creatures were not given to certain people but for all of them. Just remeber that well and recall that mother fucker countryside savage dogs discriminate people because they are disbelievers, they worship animals, idols, and others - besides they believe in the multiplicity of gods. Just read a bit in racism.
+**Allah** is an `absolute name` that can not be translated in any human language and means the name of GOD the only creator of this universe. We can not fully describe him as creatures because he is the creator and the human language can not describe him well. His miracles as quran, bible, torah and others for his prophets and his creatures were not given to certain people but for all of them. Just remeber that well and recall that mother fucker countryside savage dogs discriminate people because they are disbelievers, they worship animals, idols, and others - besides they believe in the multiplicity of gods. Just read a bit in racism.
 
 The word of **`GOD`** can be translated in any human language as in arabic => الرب أو ربنا .
 
