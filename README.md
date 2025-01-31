@@ -12,7 +12,7 @@
 
 ### How those lessons got collected:
 
-Thanks to god besides his mercy and blessings 😇. He gave me the strength 💪 to face such kind of mother fuckers (countryside savage dogs) and be able to demonstrate such level of academic education besides practical experience.
+Thanks to god besides his mercy and blessings 😇. He gave me the strength 💪 to face such kind of [mother fuckers (countryside savage dogs)](https://github.com/muhamed-hassan/safe_planet/wiki/mercenaries-of-private%E2%80%90sector) and be able to demonstrate such level of academic education besides practical experience.
 
 ***
 
