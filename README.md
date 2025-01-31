@@ -10,7 +10,9 @@
 
 ***
 
-**`Difficulty Level:`** Lessons learned from interacting alot with countryside savage dogs.
+### How those lessons got collected:
+
+Thanks to god besides his mercy and blessings 😇. He gave me the strength 💪 to face such kind of mother fuckers (countryside savage dogs) and be able to demonstrate such level of academic education besides practical experience.
 
 ***
 
