@@ -1,4 +1,4 @@
-# [Operation](https://en.wikipedia.org/wiki/Military_operation): safe_planet
+# [Operation](https://en.wikipedia.org/wiki/Military_operation): safe_planet 😇 🎅 🌍 💯 😊 ✅
 
 ![giphy](https://github.com/user-attachments/assets/ccc855ff-5bc9-4a0e-95e2-09510b80bd26)
 
