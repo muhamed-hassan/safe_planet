@@ -58,9 +58,10 @@ Note that the **intent of this repository** is to reuse the information technolo
 ***
 ***
 
-### Motivations: 
+### Motivation: 
 
 * [Item 0](https://youtu.be/AM5jgcj1TJc)
+
 * [Item 1](https://youtu.be/0vOpWqBGD8w)
 
 ![giphy](https://github.com/muhamed-hassan/safe_planet/assets/17825804/ab1101d3-eae0-4848-a9c4-3303001631fc)
