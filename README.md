@@ -49,9 +49,6 @@ The word of **`GOD`** can be translated in any human language as in arabic => ا
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 78 ) Wherever you may be, death will overtake you, even if you should be within towers of lofty construction. But if good comes to them, they say, "This is from Allah "; and if evil befalls them, they say, "This is from you." Say, "All [things] are from Allah." So what is [the matter] with those people that they can hardly understand any statement?` [Sura An-Nisaa - Aya 78]
 
 ***
-
-Add useful descriptive info about effectively constructing development process environment [java-backend enterprise level application] so our kids will be safe in the future when they try to reuse the information technology theories which are taught at universities worldwide
-
 ***
 
 This repository is made to bring licentious thieves terrorists down to the hell 🔥 which is made via Allah (GOD the creator of this [universe](https://en.wikipedia.org/wiki/Universe)) to punish them after their death, beside punishing them during their lifetime by us as [civilized societies](https://en.wikipedia.org/wiki/List_of_countries_by_population_(United_Nations)) using the #security_authorities 🕵 👮 🚔 🚨 upon reporting to them which are controlled universally via the ARMY of Allah the creator of this [universe](https://en.wikipedia.org/wiki/Universe) till the judgement day (vanishment of the universe) then they'll take a rest 😊 in the heaven where they belong but not temporarily for short naps.
