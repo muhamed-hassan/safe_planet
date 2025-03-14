@@ -48,6 +48,8 @@ The word of **`GOD`** can be translated in any human language as in arabic => ا
 
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 78 ) Wherever you may be, death will overtake you, even if you should be within towers of lofty construction. But if good comes to them, they say, "This is from Allah "; and if evil befalls them, they say, "This is from you." Say, "All [things] are from Allah." So what is [the matter] with those people that they can hardly understand any statement?` [Sura An-Nisaa - Aya 78]
 
+> Source as a Reference [We don't memorize it mate 😇] from Quran: `( 39 ) That is the True Day; so he who wills may take to his Lord a [way of] return. ( 40 ) Indeed, We have warned you of a near punishment on the Day when a man will observe what his hands have put forth and the disbeliever will say, "Oh, I wish that I were dust!"` [Sura An-Naba - Aya 39 to Aya 40]
+
 ***
 ***
 
