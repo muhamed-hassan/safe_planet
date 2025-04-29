@@ -50,6 +50,8 @@ The word of **`GOD`** can be translated in any human language as in arabic => ا
 
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 39 ) That is the True Day; so he who wills may take to his Lord a [way of] return. ( 40 ) Indeed, We have warned you of a near punishment on the Day when a man will observe what his hands have put forth and the disbeliever will say, "Oh, I wish that I were dust!"` [Sura An-Naba - Aya 39 to Aya 40]
 
+> Source as a Reference [We don't memorize it mate 😇] from Quran: `( 14 ) They will not fight you all except within fortified cities or from behind walls. Their violence among themselves is severe. You think they are together, but their hearts are diverse. That is because they are a people who do not reason. ( 15 ) [Theirs is] like the example of those shortly before them: they tasted the bad consequence of their affair, and they will have a painful punishment.` [Sura Al-Hashr - Aya 14 to Aya 15]
+
 ***
 ***
 
