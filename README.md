@@ -92,8 +92,4 @@ Note that the **intent of this repository** is to reuse the information technolo
 
 ![a1787806-7e1b-4373-bda4-2500b8cdf422](https://user-images.githubusercontent.com/17825804/233841191-2ea107ec-db31-4ae1-a562-973765f59788.jpg)
 
-***
-
-![f0782141a4935e2397b8f993a650c617](https://github.com/muhamed-hassan/safe_planet/assets/17825804/ff96bdac-ad82-4912-a923-cc1d6eb137e4)
-
 
