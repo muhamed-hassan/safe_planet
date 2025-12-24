@@ -8,7 +8,7 @@
 
 ***
 
-#### Please visit the wiki for more info https://github.com/muhamed-hassan/safe_planet/wiki 👌
+#### Please visit the [wiki](https://github.com/muhamed-hassan/safe_planet/wiki) for more info 👌
 
 ***
 
