@@ -54,6 +54,8 @@ The word of **`GOD`** can be translated in any human language as in arabic => ا
 
 > Source as a Reference [We don't memorize it mate 😇] from Quran: `( 14 ) They will not fight you all except within fortified cities or from behind walls. Their violence among themselves is severe. You think they are together, but their hearts are diverse. That is because they are a people who do not reason. ( 15 ) [Theirs is] like the example of those shortly before them: they tasted the bad consequence of their affair, and they will have a painful punishment.` [Sura Al-Hashr - Aya 14 to Aya 15]
 
+> Source as a Reference [We don't memorize it mate 😇] from Quran: `( 36 ) Indeed, those who disbelieve spend their wealth to avert [people] from the way of Allah. So they will spend it; then it will be for them a [source of] regret; then they will be overcome. And those who have disbelieved - unto Hell they will be gathered. ( 37 ) [This is] so that Allah may distinguish the wicked from the good and place the wicked some of them upon others and heap them all together and put them into Hell. It is those who are the losers. ( 38 ) Say to those who have disbelieved [that] if they cease, what has previously occurred will be forgiven for them. But if they return [to hostility] - then the precedent of the former [rebellious] peoples has already taken place. ( 39 ) And fight them until there is no fitnah and [until] the religion, all of it, is for Allah. And if they cease - then indeed, Allah is Seeing of what they do.` [Sura Al-Anfaal - Aya 36 to Aya 39]
+
 ***
 ***
 
