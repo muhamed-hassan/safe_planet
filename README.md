@@ -6,6 +6,8 @@
 
 **FYI:** [`foreigners`](https://en.wikipedia.org/wiki/Xenophobia) means people stranger to your home [country](https://en.wikipedia.org/wiki/Country). Just it, no more no less. It's a fucken [human](https://en.wikipedia.org/wiki/Human) at the end not an alien 👽 👾 🤖.
 
+> Source as a Reference [We don't memorize it mate 😇] from Quran: `( 6 ) O you who have believed, if there comes to you a disobedient one with information, investigate, lest you harm a people out of ignorance and become, over what you have done, regretful.` [Sura Al-Hujuraat - Aya 6]
+
 ***
 
 #### Please visit the [wiki](https://github.com/muhamed-hassan/safe_planet/wiki) for more info 👌
